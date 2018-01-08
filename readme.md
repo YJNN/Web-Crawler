@@ -7,4 +7,6 @@ POK GYUCK GI YongJae Nam
 AJE Jeongyeon Ryu
 
 
-soo jung
+soo jung2
+2
+
